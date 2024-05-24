@@ -1,0 +1,1 @@
+# Kreidy-s-Strength-Formula
